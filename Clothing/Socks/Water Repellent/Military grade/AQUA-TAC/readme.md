@@ -13,3 +13,4 @@ https://lowamilitaryboots.com/a-guide-to-waterproof-socks-are-they-worth-it
 - https://highlander-outdoor.com/products/100-waterproof-socks
 - https://www.genuinearmysurplus.co.uk/store/Highlander-100-Waterproof-Socks-p707274746
 - https://www.military1st.co.uk/soc089-bk-highlander-forces-waterproof-sock-black.html
+- https://equiptacticalclothing.co.uk/products/sealskinz-bircham-waterproof-all-weather-ankle-length-sock
